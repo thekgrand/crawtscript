@@ -1,2 +1,0 @@
-# crawtscript
-nurullahaozelorospucocugu
